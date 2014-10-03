@@ -5,4 +5,4 @@ ballin-bear
 
 schaut und knuddelt ihn 
 
-## wenn ihr ihn mögt immer weiter knuddeln :3
+## wenn ihr ihn mögt immer weiter knuddeln !!! :3
